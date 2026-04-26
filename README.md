@@ -85,4 +85,4 @@
 
 共 18 人（排名不分先后）：
 
-月曦MonXi、影月炎YUN、戈伦、JiYv、义锦、AlCl3、黑藓Black_Moss、7.62X51mmNATOm1185lr、楠枫灯、一只叫芒果的CAT、软盘、影月炎YUN、AlCl3、黑藓Black_Moss、7.62X51mmNATOm1185lr、冷白喵qwq、⁠LH-霁堇Violet、烁光Eilte
+**月曦MonXi**、**影月炎YUN**、**戈伦**、**JiYv**、**义锦**、**AlCl3**、**黑藓Black_Moss**、**7.62X51mmNATOm1185lr**、**楠枫灯**、**一只叫芒果的CAT**、**软盘**、**影月炎YUN**、**AlCl3**、**黑藓Black_Moss**、**7.62X51mmNATOm1185lr**、**冷白喵qwq**、⁠**LH-霁堇Violet**、**烁光Eilte**
